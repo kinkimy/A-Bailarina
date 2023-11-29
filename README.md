@@ -3,9 +3,10 @@
 Me chamo Kin
 
 - Gosto de animes
-- Desenhar demônios
+- Desenhar
 - Musicas japonesas e em inglês
 - Assistr filemes de terror
-- E amo personagem 2D principalmente o Mikey
+- Amo muito personagens 2D
+- Também amo doces
 
 ![](https://media.tenor.com/mv-IrIQ0xkIAAAAC/mikey-tokyo-revengers.gif)
